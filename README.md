@@ -1,0 +1,2 @@
+# konnzzz
+roblox script
